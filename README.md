@@ -1,2 +1,2 @@
-# Aliyah-Afifah-Karcahyana
-im a newbie, help me....
+# fine
+im a newbie, -o-
